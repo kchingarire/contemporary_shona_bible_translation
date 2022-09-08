@@ -1,6 +1,6 @@
 ## Contemporary Shona Bible Translation
 
-This Bible translation is an attempt to restore the accuracy, potency and efficacy of the Word of God that was in translation in the many Shona Bible translations that are out there. 
+This Bible translation is an attempt to restore the accuracy, potency and efficacy of the Word of God that was lost in translation in the many Shona Bible translations that are out there. 
 
 This transalation does not seek to replace or discredit other translations that have been made but it aims to:- 
 
