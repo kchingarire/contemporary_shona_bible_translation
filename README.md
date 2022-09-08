@@ -1,0 +1,2 @@
+# contemporary_shona_bible_translation
+Contemporary Shona Bible Translation
