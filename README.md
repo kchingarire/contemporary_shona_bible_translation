@@ -1,4 +1,4 @@
-## Contemporary Shona Bible Translation
+## Expanded Contemporary Shona Bible Translation
 
 This Bible translation is an attempt to restore the accuracy, potency and efficacy of the Word of God that was lost in translation in the many Shona Bible translations that are out there. 
 
